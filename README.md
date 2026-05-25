@@ -1,1 +1,0 @@
-# jaewoo0229-glitch.github.io
